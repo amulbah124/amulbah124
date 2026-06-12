@@ -3,7 +3,7 @@
 💻 CS Major + Business Minor @ Worcester State University </br>
 📊 Created a gamified Notion system to keep all of my work in order </br>
 🎯 Striving for Fintech and VC </br>
-💫 If you are looking to connect, check my [LinkedIn!](www.linkedin.com/in/annani-mulbah-9485053a2) </br>
+💫 If you are looking to connect, check my [LinkedIn!](https://www.linkedin.com/in/annani-mulbah-9485053a2) </br>
 
 </br>
 
